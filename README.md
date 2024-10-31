@@ -1,2 +1,3 @@
-# pipiks
-ПИПИКС
+# PIPICKS
+VODKA-DUDKA
+# 🍾
